@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Macbizz
-- 👀 I’m interested in to make YouTube car editing videos 
+- 👀 I’m interested in to make car editing videos 
 - 🌱 I’m currently learning editing 
 - 💞️ I’m looking to collaborate on with YouTuber 
 - 📫 How to reach me https://www.instagram.com/macbizz_yt?igsh=MTAwNDY2d2tqbTltcg==
